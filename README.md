@@ -7,3 +7,4 @@ CHALLENGE 1:
 - lindstrom è vicino al suicidio
 - politano>messi 
 - meret via da napoli
+- prendete Conte sono in ginocchio sui ceci 
